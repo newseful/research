@@ -1,0 +1,1 @@
+# Research on events from Jan. 2015 attack on French Satire Paper
