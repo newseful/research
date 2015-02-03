@@ -11,11 +11,10 @@
 - Brown charged Wilson before being shot
 - Varying reports of level of violence in protests
 - Varying reports of Grand Jury composition
-
 - w/r/t orbital fracture of Darren Wilson: 
-- - "The orgin of the misreporting can be attributed to a Conservative St Louis blogger who said he heard a rumor that Wilson had an orbital fracture. It is looking more and more like the blogger heard the rumor on a Conservative local radio show hosted by a notoriously slanted conservative host who had an ANONYMOUS caller tell him she heard from a friend of Wilson that he was beaten by Brown and received a fracture."
-- - Eventually on social media there was a photograph circulating claiming to be an X-Ray of Wilson's injury, it was, of course, not Wilson.
-- - Never confirmed by any law enforcement agency or anything close to authoritative
+- "The orgin of the misreporting can be attributed to a Conservative St Louis blogger who said he heard a rumor that Wilson had an orbital fracture. It is looking more and more like the blogger heard the rumor on a Conservative local radio show hosted by a notoriously slanted conservative host who had an ANONYMOUS caller tell him she heard from a friend of Wilson that he was beaten by Brown and received a fracture."
+- Eventually on social media there was a photograph circulating claiming to be an X-Ray of Wilson's injury, it was, of course, not Wilson.
+- Never confirmed by any law enforcement agency or anything close to authoritative
 - w/r/t gunpowder residue on clothing of Michael Brown: reported as no residue indicating shooting distance of more than 20ft, but the truth of the matter was that the clothes were never examined, body only (which had no residue)
 
 ### Sources
